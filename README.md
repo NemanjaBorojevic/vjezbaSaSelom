@@ -1,4 +1,2 @@
-# vjezbaSaSelom
-nemanja kralj
+Nemojte se zajebavat 
 
-Sela kralj
